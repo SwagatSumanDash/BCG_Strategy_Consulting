@@ -1,0 +1,1 @@
+# BCG_Strategy_Consulting
